@@ -31,7 +31,7 @@ I'm a B.Tech Electronics & Communication Engineering student with a strong inter
 
 ## Fun Fact
 
-- I tutor students online and enjoy simplifying complex concepts.
+- I tutor a student online and enjoy simplifying complex concepts.
 - I enjoy learning through hands-on experimentation and workshops.
 
 ---
